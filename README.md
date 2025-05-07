@@ -79,6 +79,6 @@ By the end of the FNB App Academy, I aim to:
 
 ## Contact
 
-For any questions or collaboration ideas, feel free to reach out to me on X @x.com/nande-ntwana.
+For any questions or collaboration ideas, feel free to reach out to me on X (fka twitter) [@nande_ntwana](https://x.com/nande_ntwana).
 
 Let’s build something amazing! 🚀
